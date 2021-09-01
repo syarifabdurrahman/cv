@@ -1,2 +1,2 @@
 # cv
-https://syarifabdurrahman.github.io/
+the link => https://syarifabdurrahman.github.io/cv/
